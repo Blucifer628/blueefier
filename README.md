@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Blucifer
+- 👀 Official developer of Shylockai/shylockmusic/shylock
+- 💫 Mc developer 
+- 🤖 Discord template seller
+- 🗿 verified discord bot developer
+- 💎 currently working on Plexanodes 
